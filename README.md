@@ -4,4 +4,5 @@
 -  Uso esse espaço para minha organizaçaõ e trabalho escolar
 -  ## caso queira entrar em contato
 -  @beatrizheloiza27@gmail.com
-![](https://tenor.com/6RBp.gif)
+   
+![gojo-satoru](https://github.com/user-attachments/assets/cef153ad-17d1-4137-9c3c-8dc765b5e159)
